@@ -1,1 +1,0 @@
-# long_p-s-queda-short_p-s-alta
